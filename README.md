@@ -165,7 +165,7 @@ Ganesh Chaturthi Dhol Tasha — DJ Seshi
 
 ## 👨‍💻 Author
 
-Harshan R
+Bhuvaneshwaran R
 CSE Student | ML Enthusiast
 
 ---
